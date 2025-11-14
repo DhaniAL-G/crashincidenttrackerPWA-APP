@@ -1,1 +1,1 @@
-This apps ready to use
+This apps ready to use.
